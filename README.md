@@ -1,37 +1,37 @@
-## Welcome to GitHub Pages
+(邢张夫夫，邢晨、邢段婚外情设定系列。OOC的小段子。为男朋友打架，是每一个攻苏的必备沙雕脑洞。)
 
-You can use the [editor on GitHub](https://github.com/tianlu777/tianlu777.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+离老邢生日还有三天，老段问老邢要不要出来庆祝，他无意在正日子里锦上添花。
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+他们难得地选了一个圈内颇有名气的club，据说夜夜笙歌热闹非凡，但之前爱静的两人从未光顾。
 
-### Markdown
+老邢打扮得一如往常，只不过爱穿的白衬衫换成了纯黑色，袖口卷到齐肘，倒将手腕处套了两圈的佛串反衬出一丝江湖气。
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+老段的行头初看也平平无奇，软和内敛的亚麻白衬衫，除了领口开得稍稍低了点，简直称得上乖巧过头。但老邢还是直觉这人藏着猫腻，眯眼打量他几秒，伸出两指点在他肩头：“来，转个身给我看。”
 
-```markdown
-Syntax highlighted code block
+老段就不好意思加得逞地咧唇一笑，转过身给他秀牛仔裤屁股上的破洞。洞倒是不大，非常节制地仍然被磨损的白色棉线根根牵束着，目测最空的地方也只能伸进去一根手指头。
 
-# Header 1
-## Header 2
-### Header 3
+老邢下意识挠了挠后脑勺，然后贴上去，借着身体和club昏暗光线的掩护，一根手指戳进那个小洞，第二根手指勾缠住欲盖弥彰的棉线往后绷，直到将原本就已十分贴合的牛仔裤绷出前方小小段隐约的形状。
 
-- Bulleted
-- List
+老段递了个半宠溺半求饶的眼神，老邢便一笑松了手，捏过对方下巴在他唇上咬了半口，拽着他一同去吧台点酒。
 
-1. Numbered
-2. List
+老邢先点了杯Black Russian，老段随即点了一样的，但是老邢伸手截住调酒师：“给他来White Russian。”老段虽是红酒玩家，对鸡尾酒却一窍不通，问：“有什么不一样？”
 
-**Bold** and _Italic_ and `Code` text
+老邢挤挤眼：“因为你甜啊。”
 
-[Link](url) and ![Image](src)
-```
+酒端上来老段明白了，White就是奶泡嘛。老邢不急着动自己那杯，单看着他等他喝第一口。行吧，生日你最大，恭敬不如从命，老段仰头喝下一大口。果然甜，还腻。他刚想把留在嘴上的奶泡抬手抹掉，旁边那人的唇就先追过来，温热的舌尖快速地扫过一遍。
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+这下轮到老段咬着他不放。纠缠片刻，老段仍揪着对方的衬衣领，说，生日快乐，邢先生。
 
-### Jekyll Themes
+老邢笑着用拇指揉了揉他被舔去奶泡却泛着水光的上唇，转身去了洗手间。再回来，就一打眼看到一个十分年轻的后生，穿着紧身衣勾勒出发达胸肌的那种，正紧挨着老段搭讪。
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/tianlu777/tianlu777.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+老段面前不知何时已多了一杯酒，想是小年轻刚为他点的。那人一边说着话，一边伸臂轻搂住老段的肩。老段不动声色挣开，端起自己和老邢的酒杯欲离去。那小年轻却十分放肆地从后贴上去，手顺着他的腰直摸到屁股上，盖住臀肉结结实实地一攥。
 
-### Support or Contact
+老段手里的酒洒了一身，他皱起眉眼神一黯，抬头正看到老邢朝自己大步走来。走过身边时老邢没看他，老段还没反应过来，就听身后一声痛呼，接着是酒杯落地碎裂和其他客人惊叫的声音。
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+老段转身，看到老邢把那后生的整条手臂高举过肩膀反压到背后，压得他整个腰往后折，卡在邻桌客人的桌沿上。后生痛得脸色惨白神情扭曲，嘴里只会“大哥大哥”地喊。
+
+老段从没见过他这个模样，一时忘了上去劝。老邢今天还戴了一条细细的吊坠项链，一尊小小的玉佛。此时那枚玉佛从衬衣领口里滑出来，随着老邢呼吸和肌肉的起伏轻轻晃动着。他用手掌拍了拍那后生痉挛的脸，压着嗓子问：“小伙子，你他妈是不是活腻了，是不是欠我抽你，嗯？”
+
+直到听了十几遍翻来覆去的“大哥我错了对不起大哥”，老邢才放开那人，整整衣领，拖着老段重新回去吧台点酒，继续被中断的庆生。
+
+End
